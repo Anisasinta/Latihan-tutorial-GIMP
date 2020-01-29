@@ -1,0 +1,1 @@
+# Latihan-tutorial-GIMP
